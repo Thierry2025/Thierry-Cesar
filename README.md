@@ -1,4 +1,4 @@
-# 👨🏾‍💻Thierry Amanate
+# 👨🏾‍💻Thierry Amante
 
 **`"Desenvolvedor em Formação" `**
 
